@@ -1,4 +1,6 @@
-// CONTOUR
+
+![image](https://github.com/Shreya2012p/Contour/assets/96654167/b5eacfc5-41d7-4969-a2fd-7cef49b2a63b)
+
 # MY-PROFILE 🤩
 
 <h2> HI, I'm  K.G.SHREYA! <img src="https://media.giphy.com/media/mGcNjsfWAjY5AEZNw6/giphy.gif" width="50"></h2>
